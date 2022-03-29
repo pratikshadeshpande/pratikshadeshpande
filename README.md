@@ -1,4 +1,4 @@
-Questions for assesment
+pakka profile Assesment
 
    Please follow the instructions below :
    Make the screen as per design (Spin the Wheel) - it does not need to be exact - but close enough is Accepted .
